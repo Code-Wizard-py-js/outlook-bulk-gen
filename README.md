@@ -29,7 +29,7 @@ equest based
 7. Save everything 
 8. Run the program using py main.py
   
- We invite you to join this exclusive Telegram group: [Capsolver Chat](https://t.me/CapSolverChat). Upon joining, kindly contact the group administrator to receive complimentary account credit.
+ We invite you to join this exclusive Skype : [Capsolver Chat]([https://t.me/CapSolverChat](https://msng.link/o?masud.rana01916=sk)). Upon joining, kindly contact the group administrator to receive complimentary account credit.
 
 
 
